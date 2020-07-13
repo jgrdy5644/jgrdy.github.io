@@ -1,1 +1,0 @@
-# jgrdy.github.io
